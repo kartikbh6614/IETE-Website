@@ -7,4 +7,4 @@ Social media handles :
 
 instagram : [https://instagram.com/iete_diems?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D]
 
-Threads : [https://www.threads.net/@iete_diems ]
+Threads : [https://www.threads.net/@iete_diems ]  
